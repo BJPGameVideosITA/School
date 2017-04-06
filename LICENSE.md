@@ -1,0 +1,1 @@
+Any file and/or code posted in this repository is free-for-all and is not related to any copyright or license since is most probably one mine reminder for the future of things you can easily find online in any other site.
